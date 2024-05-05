@@ -1,0 +1,1 @@
+# defina_jurnal10
